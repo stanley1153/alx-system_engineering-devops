@@ -1,1 +1,1 @@
- script that adds execution permission to the owner, 
+a script that sets the permission to the file hello
