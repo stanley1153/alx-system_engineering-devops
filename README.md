@@ -1,1 +1,1 @@
-John Doe
+Betty in my first directory
