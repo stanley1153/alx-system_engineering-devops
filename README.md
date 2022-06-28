@@ -1,1 +1,1 @@
-Tree
+File type: School
