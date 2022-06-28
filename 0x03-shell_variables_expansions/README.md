@@ -1,1 +1,1 @@
-The path to success is to take massive
+If the path be beautiful,
