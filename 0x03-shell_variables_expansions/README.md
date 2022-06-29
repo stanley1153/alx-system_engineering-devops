@@ -1,1 +1,1 @@
-Love is anterior to life
+There are 10 types of people in the world 
