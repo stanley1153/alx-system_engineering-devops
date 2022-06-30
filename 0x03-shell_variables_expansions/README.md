@@ -1,1 +1,1 @@
-I'm an instant star
+If the path be beautiful
